@@ -4,10 +4,9 @@
 
 https://dmrede.loophole.site/
 
-
+https://dmrede.liveblog365.com/
 
 http://dzg3ibkrtuwdei6cnhjswtv6ovplbrkcdgqx4tozrcr5zgfom76lreyd.onion
-
 
 http://idctgkt4otowalufczyp2sz4mhtsgrylxixaqa54bofgzbtzhg3a.b32.i2p
 
