@@ -1,6 +1,6 @@
 ## Para você acessar na internet comum ou na rede Tor ou na rede do i2p claramente estes simples ponto para o site.
 
-
+O diretório de links para o site na versão Tor no i2p
 
 https://dmrede.loophole.site/
 
